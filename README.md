@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Aurora, NICE TO MEET YOU 😄👋
 
 <!--
 **aurora-mfb/aurora-mfb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
